@@ -2,8 +2,8 @@
 ### I am an interaction designer & creative technologist, currently based in Brooklyn, New York.
 I work for...<br>
 
-[Currents New Media Festival](https://currentsnewmedia.org/) as digital designer and developer<br>
-[CultureHub](https://www.culturehub.org/) as creative technologist<br> 
+[Currents New Media Festival](https://currentsnewmedia.org/) as digital designer and developer<br> - until April 2021
+[CultureHub](https://www.culturehub.org/) as creative technologist<br>  - until August 2021
 
 <br>
 ### I am also a 3d visual artist. <br> 
