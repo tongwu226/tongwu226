@@ -1,7 +1,7 @@
 ## 👋 Hi, I’m Tong Wu @tongwu226. 
 ### I am an interaction designer & creative technologist, currently based in Brooklyn, New York.
 I work for...<br><br>
-Google Creative Lab as UX engineer / creative technologist <br>
+Google Cerebra Mural team as UX engineer / creative technologist <br>
 [until August 2021] - [Currents New Media Festival](https://currentsnewmedia.org/) as digital designer and creative technologsit  <br>
 [until April 2021]  - [CultureHub](https://www.culturehub.org/) as creative technologist <br><br>
 
